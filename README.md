@@ -1,0 +1,4 @@
+- 👋 Oi sou @julianasilva33
+- 👀 Sou nova aqui
+- 🌱 Estou buscando conhecimento e coisas novas
+- 📫 Meu gmail de contato é caetano.silva.juliana@escola.pr.gov.br
